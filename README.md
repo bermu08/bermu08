@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @bermu08
+- 👀 I’m interested in engineering, business, finance, and specially sports 
+- 🌱 I’m currently learning Data Science and Mobile Apps development
+- 💞️ I’m looking to collaborate on ...
+- 📫 andresbermudez.opx@gmail.com | IG: bermu.co 
+- ⚡ Fun fact: I lived in England, never been to London haha 
